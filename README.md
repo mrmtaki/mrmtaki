@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @mrmtaki
+- 📫 How to reach me : email
+- 😄 Pronouns: she/her
